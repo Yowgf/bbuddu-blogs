@@ -5,7 +5,7 @@ name: Revalidate bbuddu blog
 on:
   push:
     branches: [master]
-    paths: ['posts/**']
+    paths: ['posts/**', 'media/**']
 
 jobs:
   revalidate:
