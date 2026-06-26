@@ -15,6 +15,7 @@ jobs:
         env:
           REVALIDATE_SECRET: ${{ secrets.REVALIDATE_SECRET }}
         run: |
-          curl -fsS -X POST https://bbuddu.com/api/revalidate \
+          curl -fsS -X POST https://bbuddu.com/api/blog/revalidate \
             -H 'Content-Type: application/json' \
+            -H 'User-Agent: bbuddu-blog-publish (github-actions)' \
             -d "{\"secret\":\"${REVALIDATE_SECRET}\",\"tags\":[\"blog\"]}"
