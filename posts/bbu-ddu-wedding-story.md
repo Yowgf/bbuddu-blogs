@@ -11,7 +11,7 @@ Crystal-clear turquoise water. Golden Hawaiian sunshine. A quiet ceremony surrou
 
 But what no one tells you is how challenging it can be to plan a destination wedding from thousands of miles away. Behind every beautiful wedding photo is a planning journey that most people never see.
 
-### The Reality Behind the Dream
+## The Reality Behind the Dream
 
 People see the stunning venue. The gorgeous sunset. The happy couple.
 
@@ -39,7 +39,7 @@ Flights. Hotels. Guest accommodations. Vendor contracts. Payment schedules. Tran
 
 Everything was scattered across emails, spreadsheets, screenshots, notes, and messaging apps. Instead of enjoying the excitement of planning my wedding, I often felt like I was managing a full-time international project.
 
-### What I Wish I Had...
+## What I Wish I Had...
 
 If I could plan my destination wedding all over again, there are two things I wouldn't go without.
 
@@ -55,21 +55,21 @@ Having someone on the ground who spoke my language, understood my needs, and tru
 
 Sometimes peace of mind is the most valuable part of planning.
 
-### My Advice for Anyone Planning a Destination Wedding
+## My Advice for Anyone Planning a Destination Wedding
 
-**Start earlier than you think you need to.**
+#### **Start earlier than you think you need to.**
 
 International planning almost always takes longer than expected. Give yourself extra time—you'll thank yourself later.
 
-**Stay organized from the very beginning.**
+#### **Stay organized from the very beginning.**
 
 Using digital planning tools from day one makes it much easier to manage your map, budget, timeline, and vendors, especially when everything happens remotely.
 
-**You don't have to do everything yourself.**
+#### **You don't have to do everything yourself.**
 
 Hiring an experienced destination wedding planner isn't simply another expense—it's often one of the smartest investments you can make.
 
-### Why We Created This Platform
+## Why We Created This Platform
 
 Planning my own destination wedding completely changed the way I think about weddings. I realized that couples shouldn't have to spend months feeling overwhelmed just to create one beautiful day.
 
