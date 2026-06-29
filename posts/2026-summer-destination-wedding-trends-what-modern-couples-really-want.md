@@ -76,7 +76,7 @@ Couples are increasingly mindful of the environmental footprint of their celebra
 
 Common summer approaches include supporting 100% local vendors to reduce transport emissions, choosing strictly seasonal ingredients, drastically reducing single-use plastics at outdoor bars, and working with living, potted plants or locally grown native flora instead of imported flowers. For 2026 couples, sustainability isn't just a trend—it's a reflection of their lifestyle.
 
-![](/media/Gemini_Generated_Image_e3vnyee3vnyee3vn.jpg)
+![](/media/Gemini_Generated_Image_7k4xaj7k4xaj7k4x.png)
 
 ## What This Means for Your Summer Wedding
 
