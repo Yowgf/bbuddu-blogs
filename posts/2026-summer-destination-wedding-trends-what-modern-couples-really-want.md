@@ -15,8 +15,6 @@ From intimate guest lists and sun-drenched, multi-day celebrations to immersive 
 
 Here are the trends defining the future of summer destination weddings.
 
-![](/media/summer-vibe-wedding.png)
-
 ### 1. The Summer Micro Wedding Takes Center Stage
 
 Bigger isn't always better, especially under the summer sun. One of the strongest trends heading into the 2026 summer season is the continued rise of the micro wedding—a celebration typically involving **fewer than 50 guests**.
@@ -28,6 +26,8 @@ Rather than inviting distant relatives and acquaintances, couples are focusing p
 - **Easier logistics** when coordinating group travel and outdoor seating during peak season.
 
 What couples lose in guest count, they gain in connection. The result is a summer wedding that feels intentional, intimate, and effortlessly chic.
+
+![](/media/summer-vibe-wedding.png)
 
 ### 2. From a Wedding Day to a Summer Getaway Weekend
 
@@ -41,8 +41,6 @@ A typical 2026 summer wedding itinerary looks like this:
 - **Day 4:** A poolside recovery brunch, a casual swim party, or a farewell gathering.
 
 Instead of spending just a few hours with loved ones, couples are creating a 4-day summer retreat. It’s why many guests describe these weddings as the best vacation they’ve taken all year.
-
-![](/media/Gemini_Generated_Image_7k4xaj7k4xaj7k4x.png)
 
 ### 3. Hyper-Local Al Fresco Dining is the New Luxury
 
@@ -91,11 +89,11 @@ The future of summer weddings is crystal clear. Today's couples are prioritizing
 
 A summer destination wedding is no longer simply a ceremony abroad. It's a rare opportunity to bring together your favorite people and create a core summer memory that reflects exactly who you are as a couple.
 
-![](/media/Gemini_Generated_Image_2t7zpq2t7zpq2t7z.png)
-
 ## Planning Your Summer Destination Wedding?
 
 Finding the perfect coastal cliff or hillside villa is exciting. But managing international logistics, tracking cross-border budgets, and finding vendors you can actually trust during the busy summer season? That is where the real challenge begins.
+
+![](/media/Gemini_Generated_Image_2t7zpq2t7zpq2t7z.png)
 
 **That’s where Bbuddu comes in.**
 
