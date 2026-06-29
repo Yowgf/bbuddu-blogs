@@ -13,7 +13,7 @@ For years, summer weddings followed a predictable formula: a crowded guest list,
 
 From intimate guest lists and sun-drenched, multi-day celebrations to immersive local culture and breezy, nature-first designs, summer destination weddings in 2026 are more personal, meaningful, and unforgettable than ever before.
 
-Here are the trends defining the future of summer destination weddings.
+Here are the trends defining this summer destination weddings.
 
 ### 1. The Summer Micro Wedding Takes Center Stage
 
