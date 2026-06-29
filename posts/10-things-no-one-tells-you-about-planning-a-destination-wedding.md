@@ -2,7 +2,7 @@
 title: 10 Things No One Tells You About Planning a Destination Wedding
 date: 2026-06-27T17:40
 excerpt: ''
-cover: /media/Romantic Beach Run.png
+cover: ''
 ---
 
 Everyone talks about how beautiful destination weddings are. The pristine beaches, the exotic backdrops, and the romance of saying "I do" in a faraway paradise sound like an absolute dream.
@@ -59,7 +59,6 @@ One of the best **destination wedding tips** I can give is to embrace simplicity
 Your wedding isn't just a single one-day event; it's an entire journey that starts the moment you get engaged. Don't let the logistics overshadow the excitement. The process of planning should create anticipation and joy, not constant anxiety.
 
 ![](/media/Gemini_Generated_Image_e3vnyee3vnyee3vn.jpg)
-
 
 There is no denying that a **destination wedding** requires a bit more navigation and strategic planning. However, they are also some of the most unforgettable, intimate celebrations you and your guests will ever experience.
 
