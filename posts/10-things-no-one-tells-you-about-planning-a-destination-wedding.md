@@ -32,7 +32,7 @@ Managing a **destination wedding budget** requires extra attention. The base pri
 
 Unlike local weddings, your guests aren't just driving down the street; they are planning a vacation. They will need detailed information about flights, hotel room blocks, local transportation, and group activities. Creating a clear **destination wedding checklist** or information page for your guests will make everyone's experience much smoother.
 
-![](/media/Gemini_Generated_Image_e3vnyee3vnyee3vn.jpg)
+![](/media/beach_wedding_arch.jpg)
 
 ### 5. Weather Matters More Than You Think
 
@@ -58,7 +58,7 @@ One of the best **destination wedding tips** I can give is to embrace simplicity
 
 Your wedding isn't just a single one-day event; it's an entire journey that starts the moment you get engaged. Don't let the logistics overshadow the excitement. The process of planning should create anticipation and joy, not constant anxiety.
 
-![](/media/Gemini_Generated_Image_vfnwqbvfnwqbvfnw.png)
+![](/media/Gemini_Generated_Image_e3vnyee3vnyee3vn.jpg)
 
 There is no denying that a **destination wedding** requires a bit more navigation and strategic planning. However, they are also some of the most unforgettable, intimate celebrations you and your guests will ever experience.
 
