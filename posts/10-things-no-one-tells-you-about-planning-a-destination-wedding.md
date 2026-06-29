@@ -32,11 +32,11 @@ Managing a **destination wedding budget** requires extra attention. The base pri
 
 Unlike local weddings, your guests aren't just driving down the street; they are planning a vacation. They will need detailed information about flights, hotel room blocks, local transportation, and group activities. Creating a clear **destination wedding checklist** or information page for your guests will make everyone's experience much smoother.
 
+![](/media/Gemini_Generated_Image_e3vnyee3vnyee3vn.jpg)
+
 ### 5. Weather Matters More Than You Think
 
 Even the most tropical destinations have rainy seasons, high humidity, or intense trade winds. When **planning a destination wedding**, nature is the one factor you cannot control. Always ensure your venue has a solid, equally beautiful indoor backup plan that you actually like.
-
-![](/media/Gemini_Generated_Image_e3vnyee3vnyee3vn.jpg)
 
 ### 6. Local Vendors Know Best
 
