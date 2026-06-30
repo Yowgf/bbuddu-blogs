@@ -2,7 +2,7 @@
 title: 10 Best Destination Wedding Locations for 2026 (Costs, Seasons & Travel Tips)
 date: 2026-06-30T23:01
 excerpt: ''
-cover: /media/d-wedding_background.jpg
+cover: /media/greece_wedding.jpg
 ---
 
 ##### Dreaming of saying "I do" somewhere unforgettable?
@@ -122,7 +122,7 @@ Fiji is ideal for couples looking for a deeply laid-back island atmosphere, auth
     - **Untouched natural beauty:** Quiet, uncrowded islands wrapped in palm trees, offering authentic isolation.
     - **Perfect for elopements:** Exceptionally friendly regulations and packages for small, intimate micro-weddings.
 
-![](/media/Elegant%20Outdoor%20Dining%20Set_size_adjust.jpg)
+![](/media/Elegant%20Outdoor%20Gathering.jpg)
 
 ### Final thoughts
 
