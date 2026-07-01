@@ -2,7 +2,7 @@
 title: 7 Rules for Choosing the Perfect Destination Wedding Location
 date: 2026-07-01T17:21
 excerpt: ''
-cover: /media/arun-prakash-tfLy9y8p91o-unsplash.jpg
+cover: /media/arun-prakash-tfLy9y8p91o-unsplash_sizeedit.jpg
 ---
 
 Choosing where to say “I do” is thrilling, but it is easy to fall into a Pinterest trap. As a longtime wedding planner, I will tell you the hard truth: **the perfect destination is built on logistics, not just pretty photos.**
@@ -51,7 +51,7 @@ Your wedding is a multi-day trip for your inner circle. To make it worth their i
 
 One of the biggest perks of a destination wedding is transitioning straight into your honeymoon. Pick a region where you can wave goodbye to your guests on Sunday, and check into a secluded, romantic resort just an hour down the road—**no extra flights required.**
 
-![](/media/tai-s-captures-4YTQM0Ml7r4-unsplash.jpg)
+![](/media/tai-s-captures-4YTQM0Ml7r4-unsplash_size.jpg)
 
 ### Bottom Line
 
