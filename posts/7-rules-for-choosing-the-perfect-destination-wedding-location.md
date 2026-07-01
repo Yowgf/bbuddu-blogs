@@ -59,4 +59,4 @@ The perfect destination isn't the one trending the most on Instagram. It’s the
 
 **Need expert help narrowing down your dream location?**
 
-Explore our curated destination guides right here on [**Bbuddu.com**](Bbuddu.com), or reach out via our web page to start planning your seamless global wedding today!
+Explore our curated destination guides right here on [**Bbuddu.com**](https://bbuddu.com), or reach out via our web page to start planning your seamless global wedding today!
