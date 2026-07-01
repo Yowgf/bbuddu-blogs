@@ -1,6 +1,6 @@
 ---
 title: 7 Rules for Choosing the Perfect Destination Wedding Location
-date: 2026-07-01T17:21
+date: 2026-07-01T17:30
 excerpt: ''
 cover: /media/arun-prakash-tfLy9y8p91o-unsplash_sizeedit.jpg
 ---
