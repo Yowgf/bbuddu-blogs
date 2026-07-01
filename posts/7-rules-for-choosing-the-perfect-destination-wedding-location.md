@@ -5,7 +5,7 @@ excerpt: ''
 cover: /media/arun-prakash-tfLy9y8p91o-unsplash_sizeedit.jpg
 ---
 
-Choosing where to say “I do” is thrilling, but it is easy to fall into a Pinterest trap. As a longtime wedding planner, I will tell you the hard truth: **the perfect destination is built on logistics, not just pretty photos.**
+Choosing where to say “I do” is thrilling, but it is easy to fall into a Pinterest trap. I will tell you the hard truth: **the perfect destination is built on logistics, not just pretty photos.**
 
 Before you book flights or put down deposits, make sure your dream location passes these 7 non-negotiable tests.
 
