@@ -78,7 +78,7 @@ Perfect for beach weddings, vibrant night celebrations, and effortless all-inclu
     - **Diverse venues:** Options range from classic white-sand Caribbean beaches to hidden, mystical jungle cenotes.
     - **Energetic atmosphere:** Rich Mayan history, festive nightlife, and endless eco-adventures for the entire guest list.
 
-### 7. Portugal
+### 7. Portugal (Algarve & Sintra)
 
 Portugal offers rich European history, historic coastal charm, and beautiful weather without the premium prices of neighboring Western European nations.
 
@@ -89,7 +89,7 @@ Portugal offers rich European history, historic coastal charm, and beautiful wea
     - **Stunning landscape variety:** Sun-drenched ocean cliffs in the Algarve or magical, fairytale palaces in Sintra.
     - **Welcoming culture:** Exceptional seafood, world-renowned wines, and an incredibly warm atmosphere.
 
-### 8. Croatia
+### 8. Croatia (Dubrovnik & Hvar)
 
 Croatia's spectacular Adriatic coastline and medieval towns have become one of Europe's fastest-growing wedding destinations.
 
@@ -122,7 +122,7 @@ Fiji is ideal for couples looking for a deeply laid-back island atmosphere, auth
     - **Untouched natural beauty:** Quiet, uncrowded islands wrapped in palm trees, offering authentic isolation.
     - **Perfect for elopements:** Exceptionally friendly regulations and packages for small, intimate micro-weddings.
 
-![](/media/Elegant%20Outdoor%20Gathering.jpg)
+![](/media/Elegant%20Outdoor%20Dining%20Set_size_adjust.jpg)
 
 ### Final thoughts
 
