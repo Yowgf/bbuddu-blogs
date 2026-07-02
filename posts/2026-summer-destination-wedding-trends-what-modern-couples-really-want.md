@@ -1,5 +1,5 @@
 ---
-title: '2026 Summer Destination Wedding Trends: What Modern Couples Really Want'
+title: '2027  Summer Destination Wedding Trends: What Modern Couples Really Want'
 date: 2026-06-29T20:20
 excerpt: ''
 cover: /media/Gemini_Generated_Image_ekksqoekksqoekks.png
@@ -17,7 +17,7 @@ Here are the trends defining this summer destination weddings.
 
 ### 1. The Summer Micro Wedding Takes Center Stage
 
-Bigger isn't always better, especially under the summer sun. One of the strongest trends heading into the 2026 summer season is the continued rise of the micro wedding—a celebration typically involving **fewer than 50 guests**.
+Bigger isn't always better, especially under the summer sun. One of the strongest trends heading into the 2027 summer season is the continued rise of the micro wedding—a celebration typically involving **fewer than 50 guests**.
 
 Rather than inviting distant relatives and acquaintances, couples are focusing purely on their inner circle. In the summer, this approach creates incredible advantages:
 
@@ -44,7 +44,7 @@ Instead of spending just a few hours with loved ones, couples are creating a 4-d
 
 ### 3. Hyper-Local Al Fresco Dining is the New Luxury
 
-Luxury is no longer defined by heavy, extravagant banquet halls. In 2026, the most sought-after summer weddings are those that embrace al fresco dining and feel entirely authentic to the destination. Couples are moving away from generic resort buffets and leaning into light, refreshing, and hyper-local gastronomy.
+Luxury is no longer defined by heavy, extravagant banquet halls. In 2027, the most sought-after summer weddings are those that embrace al fresco dining and feel entirely authentic to the destination. Couples are moving away from generic resort buffets and leaning into light, refreshing, and hyper-local gastronomy.
 
 This trend beautifully incorporates:
 
