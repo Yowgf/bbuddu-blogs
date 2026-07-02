@@ -1,8 +1,8 @@
 ---
 title: 5 Essential Tips for Planning a Seamless International Wedding
-date: 2026-07-02T22:56
+date: 2026-07-02T23:02
 excerpt: ''
-cover: /media/nick-karvounis-UA3zSV9ze8U-unsplash.jpg
+cover: /media/alvaro-cvg-mW8IZdX7n8E-unsplash.jpg
 ---
 
 Love may be universal, but wedding planning isn't.
@@ -22,8 +22,6 @@ Today's couples are moving away from rigid wedding traditions and focusing inste
 The goal isn't to divide your wedding into separate cultural experiences—it's to create one celebration that genuinely represents both of you.
 
 > 💡 **Pro Tip:** Share the stories behind meaningful traditions on your wedding website or ceremony program. When guests understand the _why_ behind a tradition, they feel more connected to the experience.
-
-![](/media/engin-akyurt-3IN8pjVpDw0-unsplash.jpg)
 
 ***
 
@@ -60,8 +58,6 @@ Consider offering:
 The most successful international weddings make every guest feel comfortable, informed, and part of the celebration.
 
 ***
-
-![](/media/thomas-william-nAvodiKjbTM-unsplash.jpg)
 
 ### 4. Use Visuals When Working with Overseas Vendors
 
