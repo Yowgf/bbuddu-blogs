@@ -41,7 +41,7 @@ Every destination carries its own distinct energy. Choose a backdrop that actual
 
 International marriage laws can be a bureaucratic nightmare, requiring strict residency periods or expensive document translations.
 
-> 💡 **Planner’s Tip:** Get legally married at your local courthouse before you leave. Then, host a flawless, stress-free **symbolic ceremony** abroad. Your guests won't know the difference, and your peace of mind will thank you.
+> 💡 **Pro Tip:** Get legally married at your local courthouse before you leave. Then, host a flawless, stress-free **symbolic ceremony** abroad. Your guests won't know the difference, and your peace of mind will thank you.
 
 ### 6. Curate the Multi-Day Experience
 
