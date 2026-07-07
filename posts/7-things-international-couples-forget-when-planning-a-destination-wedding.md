@@ -9,11 +9,9 @@ cover: /media/ChatGPT Image 2026년 7월 7일 오후 06_45_23.png
 
 ### 
 
-> **Pro's Note  -** A sun-drenched ceremony on the Amalfi Coast, a romantic château in the French countryside, or a barefoot celebration on a tropical beach—destination weddings continue to capture the imagination of modern couples around the world.But behind every breathtaking celebration lies a surprisingly complex planning journey. International weddings often bring together different cultures, legal systems, languages, currencies, and time zones, creating challenges that many couples don't anticipate until the planning process is already underway.To help you stay ahead of the stress, we've rounded up seven of the most commonly overlooked details that can make all the difference when planning a wedding across borders.
+> **Pro's Note  -** Behind every stunning destination wedding is a carefully orchestrated plan. For international couples, navigating different cultures, currencies, and logistics can be just as important as choosing the perfect venue. Here's what many couples forget—and how to avoid the same mistakes.
 
 ***
-
-![](/media/ChatGPT%20Image%202026%EB%85%84%207%EC%9B%94%207%EC%9D%BC%20%EC%98%A4%ED%9B%84%2006_45_04.png)
 
 ### 01. The Legality Illusion: "Can We Just Sign the Papers There?"
 
@@ -56,6 +54,8 @@ Build a dedicated 5–10% contingency fund specifically for currency fluctuation
 Using transparent, low-fee international payment solutions can also help reduce unexpected expenses and provide more predictable budgeting throughout the planning process.
 
 ***
+
+![](/media/ChatGPT%20Image%202026년%207월%207일%20오후%2006_45_04.png)
 
 ### 04. Guest Logistics: You're Not Just Planning a Wedding, You're Planning a Vacation
 
