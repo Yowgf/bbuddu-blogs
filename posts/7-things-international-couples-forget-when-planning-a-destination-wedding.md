@@ -1,6 +1,6 @@
 ---
 title: 7 Things International Couples Forget When Planning a Destination Wedding
-date: 2026-07-07T19:02
+date: 2026-07-07T19:06
 excerpt: ''
 cover: /media/ChatGPT Image 2026년 7월 7일 오후 06_45_23.png
 ---
@@ -127,7 +127,7 @@ Instead, they thoughtfully weave meaningful traditions from both sides into a ce
 
 Whether it's combining ceremonies, incorporating multiple languages, serving culturally significant dishes, or honoring family customs, the goal isn't balance for the sake of balance—it's creating a wedding that genuinely reflects your shared story.
 
-![](/media/Elegant%20Outdoor%20Gathering.jpg)
+![](/media/elisabeth-arnold-QL5PgKelw4s-unsplash.jpg)
 
 ***
 
