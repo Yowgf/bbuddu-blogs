@@ -107,7 +107,7 @@ Trying to prioritize one tradition over another often creates unnecessary tensio
 
 Whether it's combining ceremonies, incorporating multiple languages, serving culturally significant dishes, or honoring family customs, the goal isn't balance for the sake of balance—it's creating a wedding that genuinely reflects your shared story.
 
-![](/media/elisabeth-arnold-QL5PgKelw4s-unsplash.jpg)
+![](/media/ricardo-moura-dO5HmVDu2-4-unsplash.jpg)
 
 ***
 
