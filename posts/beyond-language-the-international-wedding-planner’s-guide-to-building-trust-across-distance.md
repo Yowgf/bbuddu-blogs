@@ -45,6 +45,8 @@ Rather than relying on endless back-and-forth messages, establish a communicatio
 
 This approach keeps momentum moving forward while minimizing confusion and unnecessary follow-ups.
 
+![](/media/%ED%8E%B8%EC%95%88%ED%95%9C%20%ED%99%88%20%EC%98%A4%ED%94%BC%EC%8A%A4%EC%97%90%EC%84%9C%EC%9D%98%20%ED%9A%8C%EC%9D%98.png)
+
 ### 3. Lead With Cultural Curiosity, Not Assumptions
 
 Language is only one part of communication.
@@ -70,6 +72,8 @@ Strong planners simplify complexity.
 Shared timelines, visual checklists, collaborative planning boards, and centralized project dashboards allow couples to understand progress at a glance. Instead of searching through dozens of emails, they always know where things stand.
 
 The easier information is to understand, the more confident clients feel throughout the process.
+
+![](/media/%EB%AA%A9%ED%91%9C%EB%A5%BC%20%ED%96%A5%ED%95%9C%20%EB%A1%9C%EB%A7%A8%ED%8B%B1%ED%95%9C%20%EA%B3%84%ED%9A%8D.png)
 
 ### 5. Practice Radical Transparency
 
