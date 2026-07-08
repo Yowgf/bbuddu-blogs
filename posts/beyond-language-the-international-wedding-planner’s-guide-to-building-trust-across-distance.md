@@ -45,7 +45,7 @@ Rather than relying on endless back-and-forth messages, establish a communicatio
 
 This approach keeps momentum moving forward while minimizing confusion and unnecessary follow-ups.
 
-![](/media/pexels-walls-io-440716388-15569235.jpg)
+![](/media/weddingplanner_couple_cold.png)
 
 ### 3. Lead With Cultural Curiosity, Not Assumptions
 
@@ -73,7 +73,7 @@ Shared timelines, visual checklists, collaborative planning boards, and centrali
 
 The easier information is to understand, the more confident clients feel throughout the process.
 
-![](/media/pexels-coralbellestudios-811572.jpg)
+![](/media/%EC%9B%A8%EB%94%A9%EA%B3%BC%20%EC%97%AC%ED%96%89%20%EA%B3%84%ED%9A%8D%EC%9D%98%20%EC%99%84%EB%B2%BD%ED%95%9C%20%EC%A1%B0%ED%99%94.png)
 
 ### 5. Practice Radical Transparency
 
