@@ -2,7 +2,7 @@
 title: 7 Things International Couples Forget When Planning a Destination Wedding
 date: 2026-07-07T19:31
 excerpt: ''
-cover: /media/ChatGPT Image 2026년 7월 7일 오후 06_45_23.png
+cover: /media/ChatGPT Image 2026년 7월 7일 오후 06_45_04.png
 ---
 
 ### Love Without Borders, Planning Without Blunders
@@ -48,7 +48,7 @@ A vendor proposal that fits comfortably within your budget today may cost signif
 
 ***
 
-![](/media/ChatGPT%20Image%202026년%207월%207일%20오후%2006_45_04.png)
+![](/media/ChatGPT%20Image%202026년%207월%207일%20오후%2006_45_23.png)
 
 ### 04. Guest Logistics: You're Not Just Planning a Wedding, You're Planning a Vacation
 
@@ -107,7 +107,7 @@ Trying to prioritize one tradition over another often creates unnecessary tensio
 
 Whether it's combining ceremonies, incorporating multiple languages, serving culturally significant dishes, or honoring family customs, the goal isn't balance for the sake of balance—it's creating a wedding that genuinely reflects your shared story.
 
-![](/media/ricardo-moura-dO5HmVDu2-4-unsplash.jpg)
+![](/media/thomas-william-nAvodiKjbTM-unsplash.jpg)
 
 ***
 
