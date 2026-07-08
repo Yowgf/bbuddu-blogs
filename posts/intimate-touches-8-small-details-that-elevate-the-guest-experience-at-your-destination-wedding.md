@@ -49,7 +49,7 @@ Use your ceremony programs to share a brief version of how you met, your proposa
 
 As you make your grand exit down the aisle as newlyweds, invite guests to celebrate with bubbles and dried flower petals. It engages the crowd in a joyful moment and yields effortlessly beautiful, candid photographs.
 
-![](/media/ricardo-moura-dO5HmVDu2-4-unsplash.jpg)
+![](/media/pexels-eiad-ismaeel-125804712-37435956.jpg)
 
 ## Final Thought
 
