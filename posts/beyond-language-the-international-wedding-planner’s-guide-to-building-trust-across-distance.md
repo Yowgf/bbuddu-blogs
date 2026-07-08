@@ -2,7 +2,7 @@
 title: 'Beyond Language: The International Wedding Planner’s Guide to Building Trust Across Distance'
 date: 2026-07-08T22:46
 excerpt: ''
-cover: /media/웨딩 플래너의 원격 상담 공간.png
+cover: /media/해변을 배경으로 한 웨딩 계획.png
 ---
 
 Planning a wedding has always been about relationships. But when your clients live thousands of miles away, operate in different time zones, and come from different cultural backgrounds, communication becomes just as important as design, logistics, and execution.
