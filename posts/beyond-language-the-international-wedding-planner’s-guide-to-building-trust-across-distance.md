@@ -2,7 +2,7 @@
 title: 'Beyond Language: The International Wedding Planner’s Guide to Building Trust Across Distance'
 date: 2026-07-08T22:46
 excerpt: ''
-cover: /media/해변을 배경으로 한 웨딩 계획.png
+cover: /media/웨딩 플래너의 원격 상담 공간.png
 ---
 
 Planning a wedding has always been about relationships. But when your clients live thousands of miles away, operate in different time zones, and come from different cultural backgrounds, communication becomes just as important as design, logistics, and execution.
@@ -45,8 +45,6 @@ Rather than relying on endless back-and-forth messages, establish a communicatio
 
 This approach keeps momentum moving forward while minimizing confusion and unnecessary follow-ups.
 
-![](/media/weddingplanner_couple_cold.png)
-
 ### 3. Lead With Cultural Curiosity, Not Assumptions
 
 Language is only one part of communication.
@@ -72,8 +70,6 @@ Strong planners simplify complexity.
 Shared timelines, visual checklists, collaborative planning boards, and centralized project dashboards allow couples to understand progress at a glance. Instead of searching through dozens of emails, they always know where things stand.
 
 The easier information is to understand, the more confident clients feel throughout the process.
-
-![](/media/%EC%9B%A8%EB%94%A9%EA%B3%BC%20%EC%97%AC%ED%96%89%20%EA%B3%84%ED%9A%8D%EC%9D%98%20%EC%99%84%EB%B2%BD%ED%95%9C%20%EC%A1%B0%ED%99%94.png)
 
 ### 5. Practice Radical Transparency
 
