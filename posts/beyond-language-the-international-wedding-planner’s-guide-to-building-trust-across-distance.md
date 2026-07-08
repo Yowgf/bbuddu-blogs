@@ -45,7 +45,7 @@ Rather than relying on endless back-and-forth messages, establish a communicatio
 
 This approach keeps momentum moving forward while minimizing confusion and unnecessary follow-ups.
 
-![](/media/weddingplanner_couple_cold.png)
+![](/media/%EC%9B%A8%EB%94%A9%20%ED%94%8C%EB%9E%98%EB%84%88%EC%9D%98%20%EC%9B%90%EA%B2%A9%20%EC%83%81%EB%8B%B4%20%EA%B3%B5%EA%B0%84.png)
 
 ### 3. Lead With Cultural Curiosity, Not Assumptions
 
