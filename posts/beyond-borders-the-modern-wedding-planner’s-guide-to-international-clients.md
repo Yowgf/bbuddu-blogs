@@ -1,5 +1,5 @@
 ---
-title: 'Beyond Borders: The Modern Wedding Planner’s Guide to International Clients'
+title: 'The International Couple Playbook: How Wedding Planners Can Win More Global Clients'
 date: 2026-07-09T21:29
 excerpt: ''
 cover: /media/filipp-romanovski-TsdDPnG-bHE-unsplash.jpg
@@ -16,7 +16,6 @@ For wedding planners, this shift opens up incredibly lucrative opportunities. Ho
 A few strategic refinements to your brand can completely bridge this distance. Here is how to make a powerful first impression.
 
 ![](/media/elena-joland--4nhJnfF7W0-unsplash.jpg)
-
 
 ### 1. Build a Website That Anticipates International Needs
 
