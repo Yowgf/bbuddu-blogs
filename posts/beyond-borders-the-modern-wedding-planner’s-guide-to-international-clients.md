@@ -1,5 +1,5 @@
 ---
-title: 'The International Couple Playbook: How Wedding Planners Can Win More Global Clients'
+title: 'Beyond Borders: The Modern Wedding Planner’s Guide to International Clients'
 date: 2026-07-09T21:29
 excerpt: ''
 cover: /media/filipp-romanovski-TsdDPnG-bHE-unsplash.jpg
