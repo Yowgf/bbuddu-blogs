@@ -1,5 +1,5 @@
 ---
-title: 'Beyond Borders: The Modern Wedding Planner’s Guide to International Clients (Part2)'
+title: 'Beyond Borders: The Modern Wedding Planner’s Guide to International Clients (Part 2)'
 date: 2026-07-10T11:50
 excerpt: ''
 cover: /media/pexels-walls-io-440716388-15569235.jpg
