@@ -2,7 +2,7 @@
 title: 'Beyond Language: The International Wedding Planner’s Guide to Building Trust Across Distance'
 date: 2026-07-08T22:46
 excerpt: ''
-cover: /media/웨딩 플래너의 원격 상담 공간.png
+cover: /media/웨딩 플래닝 작업 공간.png
 ---
 
 Planning a wedding has always been about relationships. But when your clients live thousands of miles away, operate in different time zones, and come from different cultural backgrounds, communication becomes just as important as design, logistics, and execution.
@@ -106,7 +106,7 @@ The most memorable client experiences still include personal touches:
 
 These moments remind couples that behind every dashboard and timeline is a real person invested in their celebration.
 
-![](/media/웨딩%20플래닝%20작업%20공간.png)
+![](/media/pexels-katie-goertzen-2919898-4491645.jpg)
 
 ### Final Thoughts: Trust Is the Real Deliverable
 
