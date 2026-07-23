@@ -2,7 +2,7 @@
 title: 'Beyond Borders: The Modern Wedding Planner’s Guide to International Clients (Part 2)'
 date: 2026-07-10T11:50
 excerpt: ''
-cover: /media/pexels-walls-io-440716388-15569235.jpg
+cover: /media/pasted-image-1784816901113.png
 ---
 
 _Turning interest into inquiries, bookings, and long-term growth._
@@ -24,6 +24,8 @@ Planners who consistently publish helpful content position themselves as trusted
 Think beyond inspiration. Educational content often performs just as well as beautiful wedding features because it solves real problems and answers real questions.
 
 When couples find value in your content, they begin to trust your expertise.
+
+![](/media/pasted-image-1784817100280.png)
 
 ### 5. Demonstrate Genuine Local Expertise
 
@@ -47,7 +49,7 @@ The goal is simple: help couples feel confident before the first call ever takes
 
 When trust is established early, conversations become easier, decision-making becomes faster, and bookings become more natural.
 
-![](/media/Elegant%20Floral%20Arrangement.png)
+![](/media/pasted-image-1784816471809.png)
 
 ### Final Thoughts
 
