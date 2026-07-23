@@ -2,7 +2,7 @@
 title: 'My Hawaii Destination Wedding: The Beautiful Dream That Was Harder Than I Ever Imagined'
 date: 2026-06-26T19:24
 excerpt: ''
-cover: /media/bbuddu-blog-cover.jpg
+cover: /media/석양 속의 웨딩 실루엣_수정.png
 ---
 
 When I first dreamed of getting married in Hawaii, it felt like something straight out of a movie.
