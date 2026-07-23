@@ -2,7 +2,7 @@
 title: 'Beyond Language: The International Wedding Planner’s Guide to Building Trust Across Distance'
 date: 2026-07-08T22:46
 excerpt: ''
-cover: /media/웨딩 플래닝 작업 공간.png
+cover: /media/pasted-image-1784815158549.png
 ---
 
 Planning a wedding has always been about relationships. But when your clients live thousands of miles away, operate in different time zones, and come from different cultural backgrounds, communication becomes just as important as design, logistics, and execution.
@@ -73,7 +73,7 @@ Shared timelines, visual checklists, collaborative planning boards, and centrali
 
 The easier information is to understand, the more confident clients feel throughout the process.
 
-![](/media/%EB%AA%A9%ED%91%9C%EB%A5%BC%20%ED%96%A5%ED%95%9C%20%EB%A1%9C%EB%A7%A8%ED%8B%B1%ED%95%9C%20%EA%B3%84%ED%9A%8D.png)
+![](/media/웨딩%20플래닝%20작업%20공간.png)
 
 ### 5. Practice Radical Transparency
 
